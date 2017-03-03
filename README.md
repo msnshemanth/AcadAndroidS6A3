@@ -1,1 +1,0 @@
-# AcadAndroidS6A3
